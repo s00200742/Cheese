@@ -1,4 +1,3 @@
-# Cheese
 B)
 Jim
 Well
